@@ -1,1 +1,0 @@
-# devecicompaniesgroup.github.io
